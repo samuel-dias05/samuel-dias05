@@ -4,4 +4,4 @@ Oii !!!
 
 
 
-Siga-me no linkedin<img src="https://play-lh.googleusercontent.com/kMofEFLjobZy_bCuaiDogzBcUT-dz3BBbOrIEjJ-hqOabjK8ieuevGe6wlTD15QzOqw" alt="LinkedIn – Encontre seu próximo emprego – Apps no Google Play" style="zoom:4%;" /> [Samuel Dias](https://www.linkedin.com/in/samuel-dias05/) e/ou me chame no Whatsapp [71 999760897](https://api.whatsapp.com/send?phone=5571999760897)
+Siga-me no linkedin [Samuel Dias](https://www.linkedin.com/in/samuel-dias05/) e/ou me chame no Whatsapp [71 999760897](https://api.whatsapp.com/send?phone=5571999760897)
